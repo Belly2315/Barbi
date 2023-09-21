@@ -1,0 +1,2 @@
+# Barbi
+Primeira série B
